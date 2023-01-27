@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IdrismustaphaLilking#7741
+- 👋 Hi, I’m @Idrismustapha 
 - 👀 I’m interested in web3 and blockchain technology 
 - 🌱 I’m currently learning How the blockchain works and smart contacts 
 - 💞️ I’m looking to collaborate on building web3 communities 
